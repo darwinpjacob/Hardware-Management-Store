@@ -1,1 +1,1 @@
-ajhsgfiah
+When it comes to buy Hardware the user has to go through a lot of hassle. The user has to search for a trusting source; user might have to even test them till they get from a certified partner hardware source. Then the user has to talk to provider and has to give them proper direction to their shop or designated location via call or text. Hardware management system will help solve this entire problem. A program which helps the User to buy Hardware tools hassle free.
